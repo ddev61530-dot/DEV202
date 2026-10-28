@@ -1,1 +1,1 @@
-salut la planette
+salut la planet
